@@ -40,4 +40,10 @@
 
 ### ps i have a secret
 
-### i never signed an NDA with any record labels
+### i never signed an NDA with voldemort
+
+### & im pretty sure i could learn to play yahtzee and read a lot at the same time
+
+### when we were very young, 4.0 gpa was a regular event in our house. 
+
+### think im pretty good at doing shortnote and explain LSAT english in regular human person english and all that

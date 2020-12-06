@@ -40,6 +40,4 @@
 
 ### ps i have a secret
 
-### i never signed an NDA with any record labels, i translated one for trade agreement between telecom company before tho
-
-### so thank you yeezus
+### i never signed an NDA with any record labels

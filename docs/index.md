@@ -1,15 +1,45 @@
-# Hello, Sweetie
+# dear darling,
 
-## i know there're four words on the tip of your tongue. you'd never need to say it
+## wanna go ride on a scooter?
 
-### cuz i know what u know, we can feel it
+## we can run it into a river or sth
 
-### i'll keep ur secret safe 'til the time we both find ourselves alone again
+### then watch the sunset together?
 
-### the storm is coming. u dont need sunscreen anymore
+### wouldnt that b romantik?
 
-### i'll board up ur windows and we can make blanket fort
+### or do u prefer a night out in the wood?
 
-### i might never be ur knife in shining armor
+### i cant set up a campfire properly tho so umm
 
-### but i wanna be ur left hand not!man
+### if u prefer the wood, lets find a cabin yeah?
+
+## i got a feeling u'd like this river bank tho
+
+## its right behind our house
+
+## i mean its currently under construction but we have a small swimming pool and everything
+
+### (and we'd be able to watch the sunset from inside the house how cool is that?)
+
+### all this thanks to my mommy
+
+### we had lunch together today it was really nice
+
+### not sure why im telling u all of this lol
+
+### but yeah,
+
+### no signature needed for this waterside abode
+
+### a picture maybe?
+
+### just cuz ur all so pretty and i wanna count your eyelashes but dont wanna stare at u for a long time cuz thats creepy
+
+### aniwey i think im too sleepy and losing brain-2-mouth filter
+
+### ps i have a secret
+
+### i never signed an NDA with any record labels, i translated one for trade agreement between telecom company before tho
+
+### so thank you yeezus

@@ -1,49 +1,13 @@
-# dear darling,
+# oopsy daisy
 
-## wanna go ride on a scooter?
+## me be forgetting how many lawyers & judge-wannabes are available in this godforsaken world (jkjk sorry sorry. i actually think you're very beautiful and deserves better)
 
-## we can run it into a river or sth
+### betting on some starry eyed ladies and gentlemen and nonbinary darlings in their uni law library devouring contractual obligation kanye posted on twitter for the world to see cuz damn dats gold mine of jargons and they gonna aced their bar exams SO GOOD 
 
-### then watch the sunset together?
+### going back to my desk job for a while
 
-### wouldnt that b romantik?
+### i will be back with passionfruit juice & popcorn
 
-### or do u prefer a night out in the wood?
+### think i have orange juice 2
 
-### i cant set up a campfire properly tho so umm
-
-### if u prefer the wood, lets find a cabin yeah?
-
-## i got a feeling u'd like this river bank tho
-
-## its right behind our house
-
-## i mean its currently under construction but we have a small swimming pool and everything
-
-### (and we'd be able to watch the sunset from inside the house how cool is that?)
-
-### all this thanks to my mommy
-
-### we had lunch together today it was really nice
-
-### not sure why im telling u all of this lol
-
-### but yeah,
-
-### no signature needed for this waterside abode
-
-### a picture maybe?
-
-### just cuz ur all so pretty and i wanna count your eyelashes but dont wanna stare at u for a long time cuz thats creepy
-
-### aniwey i think im too sleepy and losing brain-2-mouth filter
-
-### ps i have a secret
-
-### i never signed an NDA with voldemort
-
-### & im pretty sure i could learn to play yahtzee and read a lot at the same time
-
-### when we were very young, 4.0 gpa was a regular event in our house. 
-
-### think im pretty good at doing shortnote and explain LSAT english in regular human person english and all that
+### non-alcoholic drinks, ani1???

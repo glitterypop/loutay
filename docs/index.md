@@ -1,13 +1,12 @@
-# oopsy daisy
+### im not anyone's daisy so dont come at me if u dont like my opinion. this wholsite is to clown嵐 why is my clown emoji turned to chinese ive hot no clue.
 
-## me be forgetting how many lawyers & judge-wannabes are available in this godforsaken world (jkjk sorry sorry. i actually think you're very beautiful and deserves better)
 
-### betting on some starry eyed ladies and gentlemen and nonbinary darlings in their uni law library devouring contractual obligation kanye posted on twitter for the world to see cuz damn dats gold mine of jargons and they gonna aced their bar exams SO GOOD 
+## so if you dont love Taylor Swift and Louis Tomlinson and Harry Styles anf Niall Horan and Liam Payne and Zayn Malik and Shawn Mendes and ariana grande 
 
-### going back to my desk job for a while
+# get out of my sight. site. hehehe pun.
 
-### i will be back with passionfruit juice & popcorn
+# this list will expand any time in the future without notice because everyone loves lou and this adore tay for loving Lou 2
 
-### think i have orange juice 2
+## tupo supremanvy
 
-### non-alcoholic drinks, ani1???
+### *typo supremacy

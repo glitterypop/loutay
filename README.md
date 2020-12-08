@@ -1,2 +1,8 @@
 # loutay
-uWishUSawMeComing
+## they're BESTIES goddamnit
+
+### in this essay, i will...
+
+# LOUTAY ARE BESTIES AND NOBODY CAN CHANGE MY MIND. NOT EVEN LOUTAY THEMSELVES CUZ THEY IN ENTERTAINMENT INDUSTRY AND ENTAINER ALWAYS LIE LIE LIE
+
+### (a million little time)
